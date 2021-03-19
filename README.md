@@ -1,5 +1,5 @@
 <h1 align="center">
-  <h1>We're stuck in a loop, we need to break out of it</h1>
+  <p>We're stuck in a loop, we need to break out of it</p>
 </h1>
 
 <p align="center">
