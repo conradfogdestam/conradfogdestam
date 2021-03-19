@@ -9,6 +9,6 @@
 </p>
 
 <p align="center">
-  <p> The loop is officially confirmed and we are right in the middle of it, the question is how long is the loop??. I think we never will be able to understand the loop because the loop is looping constantly and loops are created within eachother, is the universe real or just a simulation created by feregin enteties.</p>
+  <p> The loop is officially confirmed and we are right in the middle of it, the question is how long is the loop? We never will be able to understand the loop because the loop is looping constantly and loops are created within eachother, is the universe real or just a simulation created by feregin enteties. Will we ever fing out or is life just loops inside a program, what is the meaning of life?</p>
 </p>
 
