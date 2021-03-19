@@ -8,6 +8,6 @@
 </p>
 
 <p align="center">
-  <h1> Hallucinogens are a type of drug that changes a person’s perception of reality. Also known as ‘psychedelic drugs’, hallucinogens make a person see, feel and hear things that aren’t real, or distort their interpretation of what’s going on around them. Some are quick acting, others take longer to take effect. Being under the influence of a hallucinogen is commonly called ‘tripping’.Some hallucinogens are manufactured, like LSD (lysergic acid diethylamide), PCP (phencyclidine, or ‘angel dust’) and ketamine. Others are naturally occurring compounds found in particular plants. For instance, the peyote cactus produces the hallucinogen mescaline, while psilocybin is found in certain mushrooms, known as ‘magic mushrooms’. </h1>
+  <p> Hallucinogens are a type of drug that changes a person’s perception of reality. Also known as ‘psychedelic drugs’, hallucinogens make a person see, feel and hear things that aren’t real, or distort their interpretation of what’s going on around them. Some are quick acting, others take longer to take effect. Being under the influence of a hallucinogen is commonly called ‘tripping’.Some hallucinogens are manufactured, like LSD (lysergic acid diethylamide), PCP (phencyclidine, or ‘angel dust’) and ketamine. Others are naturally occurring compounds found in particular plants. For instance, the peyote cactus produces the hallucinogen mescaline, while psilocybin is found in certain mushrooms, known as ‘magic mushrooms’. </p>
 </p>
 
