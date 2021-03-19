@@ -1,6 +1,6 @@
-<p align="center">
+<h1 align="center">
   <h1>We're stuck in a loop, we need to break out of it</h1>
-</p>
+</h1>
 
 <p align="center">
   <a href="https://soundcloud.com/djboliver">DJ BOLIVER</a> |
