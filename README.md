@@ -1,5 +1,8 @@
 <p align="center">
-  <b>We're stuck in a loop, we need to break out of it</b><br>
+  <h1>We're stuck in a loop, we need to break out of it</h1>
+</p>
+
+<p align="center">
   <a href="https://soundcloud.com/djboliver">DJ BOLIVER</a> |
   <a href="#">Link 2</a> |
   <a href="#">Link 3</a>
