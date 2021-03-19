@@ -5,6 +5,6 @@
   <a href="#">Link 2</a> |
   <a href="#">Link 3</a>
   <br><br>
-  <img src="http://s.4cdn.org/image/title/105.gif">
+  <img src="http://31.media.tumblr.com/0bdf347448ddc4d0b839afae7fa74b56/tumblr_ne2y3mPPIE1txeruoo1_500.gif">
 </p>
 
