@@ -5,7 +5,7 @@
 <p align="center">
   <a href="https://soundcloud.com/djboliver"> - THE CREATIVE GENIOUS HIMSELF</a>
   <br><br>
-  <img src="http://31.media.tumblr.com/0bdf347448ddc4d0b839afae7fa74b56/tumblr_ne2y3mPPIE1txeruoo1_500.gif"> <img src="http://31.media.tumblr.com/0bdf347448ddc4d0b839afae7fa74b56/tumblr_ne2y3mPPIE1txeruoo1_500.gif">
+  <img src="http://31.media.tumblr.com/0bdf347448ddc4d0b839afae7fa74b56/tumblr_ne2y3mPPIE1txeruoo1_500.gif">
 </p>
 
 <p align="center">
