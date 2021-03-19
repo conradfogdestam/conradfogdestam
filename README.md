@@ -9,6 +9,6 @@
 </p>
 
 <p align="center">
-  <p> Hallucinogens are a type of drug that changes a person’s perception of reality. Also known as ‘psychedelic drugs’, hallucinogens make a person see, feel and hear things that aren’t real, or distort their interpretation of what’s going on around them. Some are quick acting, others take longer to take effect. Being under the influence of a hallucinogen is commonly called ‘tripping’.Some hallucinogens are manufactured, like LSD (lysergic acid diethylamide), PCP (phencyclidine, or ‘angel dust’) and ketamine. Others are naturally occurring compounds found in particular plants. For instance, the peyote cactus produces the hallucinogen mescaline, while psilocybin is found in certain mushrooms, known as ‘magic mushrooms’. </p>
+  <p> The loop is officially confirmed and we are right in the middle of it, the question is how long is the loop??. I think we never will be able to understand the loop because the loop is looping constantly and loops are created within eachother, is the universe real or just a simulation created by feregin enteties.</p>
 </p>
 
