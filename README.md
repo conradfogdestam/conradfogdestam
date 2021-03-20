@@ -12,3 +12,5 @@
   <p> The loop is officially confirmed and we are right in the middle of it, the question is how long is the loop? We never will be able to understand the loop because the loop is looping constantly and loops are created within eachother, is the universe real or just a simulation created by feregin enteties. Will we ever fing out or is life just loops inside a program, what is the meaning of life?</p>
 </p>
 
+Im right now an employee at the company SELK CAPITAL which is a a group of ountless innovative daughter companies such as SELK BREWERY, SELK AUTOMATION aswell as SELK DEVELOPMENT. For any inquires according SELK CAPITAL contact the CEO [OLIVER TD](https://github.com/olivertd)
+
