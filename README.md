@@ -2,11 +2,11 @@
 Im right now an employee at the company SELK CAPITAL which is a a group of countless innovative daughter companies such as SELK BREWERY, SELK AUTOMATION aswell as SELK DEVELOPMENT. For any inquires according SELK CAPITAL contact the CEO [Oliver TD](https://github.com/olivertd)
 
 <h1 align="center">
-  <p>We're stuck in a loop, we need to break out of it</p>
+  <p>𝙒𝙚'𝙧𝙚 𝙨𝙩𝙪𝙘𝙠 𝙞𝙣 𝙖 𝙡𝙤𝙤𝙥, 𝙬𝙚 𝙣𝙚𝙚𝙙 𝙩𝙤 𝙗𝙧𝙚𝙖𝙠 𝙤𝙪𝙩 𝙤𝙛 𝙞𝙩</p>
 </h1>
 
 <p align="center">
-  <a href="https://twitter.com/elonmusk"> - THE CREATIVE GENIOUS HIMSELF</a>
+  <a href="https://twitter.com/elonmusk"> - 𝙏𝙃𝙀 𝘾𝙍𝙀𝘼𝙏𝙄𝙑𝙀 𝙂𝙀𝙉𝙄𝙊𝙐𝙎 𝙃𝙄𝙈𝙎𝙀𝙇𝙁</a>
   <br><br>
   <img src="https://cdn.discordapp.com/attachments/778976235949654019/823556411212562442/ezgif-3-13e18e1232fa.gif">
 </p>
