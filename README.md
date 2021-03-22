@@ -5,7 +5,7 @@
 <p align="center">
   <a href="https://twitter.com/elonmusk"> - THE CREATIVE GENIOUS HIMSELF</a>
   <br><br>
-  <img src="http://31.media.tumblr.com/0bdf347448ddc4d0b839afae7fa74b56/tumblr_ne2y3mPPIE1txeruoo1_500.gif">
+  <img src="https://cdn.discordapp.com/attachments/778976235949654019/823556411212562442/ezgif-3-13e18e1232fa.gif">
 </p>
 
 <p align="center">
