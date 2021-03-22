@@ -1,6 +1,6 @@
 <h1> 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙩𝙝𝙚 𝙥𝙧𝙤𝙛𝙞𝙡𝙚 𝙤𝙛 𝘾𝙤𝙣𝙚𝙞𝙡𝙨 𝙓𝙑𝙄𝙄 </h1>
 
-Im right now an employee at the company SELK CAPITAL which is a a group of countless innovative daughter companies such as SELK BREWERY, SELK AUTOMATION aswell as SELK DEVELOPMENT. For any inquires according SELK CAPITAL contact the CEO [Oliver TD](https://github.com/olivertd)
+𝘐𝘮 𝘳𝘪𝘨𝘩𝘵 𝘯𝘰𝘸 𝘢𝘯 𝘦𝘮𝘱𝘭𝘰𝘺𝘦𝘦 𝘢𝘵 𝘵𝘩𝘦 𝘤𝘰𝘮𝘱𝘢𝘯𝘺 𝘚𝘌𝘓𝘒 𝘊𝘈𝘗𝘐𝘛𝘈𝘓 𝘸𝘩𝘪𝘤𝘩 𝘪𝘴 𝘢 𝘢 𝘨𝘳𝘰𝘶𝘱 𝘰𝘧 𝘤𝘰𝘶𝘯𝘵𝘭𝘦𝘴𝘴 𝘪𝘯𝘯𝘰𝘷𝘢𝘵𝘪𝘷𝘦 𝘥𝘢𝘶𝘨𝘩𝘵𝘦𝘳 𝘤𝘰𝘮𝘱𝘢𝘯𝘪𝘦𝘴 𝘴𝘶𝘤𝘩 𝘢𝘴 𝘚𝘌𝘓𝘒 𝘉𝘙𝘌𝘞𝘌𝘙𝘠, 𝘚𝘌𝘓𝘒 𝘈𝘜𝘛𝘖𝘔𝘈𝘛𝘐𝘖𝘕 𝘢𝘴𝘸𝘦𝘭𝘭 𝘢𝘴 𝘚𝘌𝘓𝘒 𝘋𝘌𝘝𝘌𝘓𝘖𝘗𝘔𝘌𝘕𝘛. 𝘍𝘰𝘳 𝘢𝘯𝘺 𝘪𝘯𝘲𝘶𝘪𝘳𝘦𝘴 𝘢𝘤𝘤𝘰𝘳𝘥𝘪𝘯𝘨 𝘚𝘌𝘓𝘒 𝘊𝘈𝘗𝘐𝘛𝘈𝘓 𝘤𝘰𝘯𝘵𝘢𝘤𝘵 𝘵𝘩𝘦 𝘊𝘌𝘖 [𝘖𝘭𝘪𝘷𝘦𝘳 𝘛𝘋](https://github.com/olivertd)
 
 <h1 align="center">
   <p>𝙒𝙚'𝙧𝙚 𝙨𝙩𝙪𝙘𝙠 𝙞𝙣 𝙖 𝙡𝙤𝙤𝙥, 𝙬𝙚 𝙣𝙚𝙚𝙙 𝙩𝙤 𝙗𝙧𝙚𝙖𝙠 𝙤𝙪𝙩 𝙤𝙛 𝙞𝙩</p>
