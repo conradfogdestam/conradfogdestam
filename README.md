@@ -11,7 +11,5 @@
   <br><br>
   <img src="<img src="https://media4.giphy.com/media/r3LYut2JMz0YM/giphy.gif?cid=ecf05e479101n9f726qzyfo9hdhl9ssbzyhyxxj9vt7skias&rid=giphy.gifformat=1000w"</p>">
 </p>
-  #<img src="https://images.squarespace-cdn.com/content/v1/5ab926f8a9e0287fbf928015/1556688033951-MAM4BA9ND275CEAMLISE/ke17ZwdGBToddI8pDm48kK3svdqmw2prsPjqjcUJoBVZw-#zPPgdn4jUwVcJE1ZvWEtT5uBSRWt4vQZAgTJucoTqqXjS3CfNDSuuf31e0tVG_Q82foFXlATZgWeZbKuDWu8UEUHkxgJke7CVwzRQ8vDFvbuqF0GUInBxxtVhBOn4/1_uXRc7zmF_ckGGiLt_Ttx2Q.gif?format=1000w">
-#</p>
 
 <p align="center"> 𝘛𝘩𝘦 𝘭𝘰𝘰𝘱 𝘪𝘴 𝘰𝘧𝘧𝘪𝘤𝘪𝘢𝘭𝘭𝘺 𝘤𝘰𝘯𝘧𝘪𝘳𝘮𝘦𝘥 𝘢𝘯𝘥 𝘸𝘦 𝘢𝘳𝘦 𝘳𝘪𝘨𝘩𝘵 𝘪𝘯 𝘵𝘩𝘦 𝘮𝘪𝘥𝘥𝘭𝘦 𝘰𝘧 𝘪𝘵, 𝘵𝘩𝘦 𝘲𝘶𝘦𝘴𝘵𝘪𝘰𝘯 𝘪𝘴 𝘩𝘰𝘸 𝘭𝘰𝘯𝘨 𝘪𝘴 𝘵𝘩𝘦 𝘭𝘰𝘰𝘱? 𝘞𝘦 𝘯𝘦𝘷𝘦𝘳 𝘸𝘪𝘭𝘭 𝘣𝘦 𝘢𝘣𝘭𝘦 𝘵𝘰 𝘶𝘯𝘥𝘦𝘳𝘴𝘵𝘢𝘯𝘥 𝘵𝘩𝘦 𝘭𝘰𝘰𝘱 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘵𝘩𝘦 𝘭𝘰𝘰𝘱 𝘪𝘴 𝘭𝘰𝘰𝘱𝘪𝘯𝘨 𝘤𝘰𝘯𝘴𝘵𝘢𝘯𝘵𝘭𝘺 𝘢𝘯𝘥 𝘭𝘰𝘰𝘱𝘴 𝘢𝘳𝘦 𝘤𝘳𝘦𝘢𝘵𝘦𝘥 𝘸𝘪𝘵𝘩𝘪𝘯 𝘦𝘢𝘤𝘩𝘰𝘵𝘩𝘦𝘳, 𝘪𝘴 𝘵𝘩𝘦 𝘶𝘯𝘪𝘷𝘦𝘳𝘴𝘦 𝘳𝘦𝘢𝘭 𝘰𝘳 𝘫𝘶𝘴𝘵 𝘢 𝘴𝘪𝘮𝘶𝘭𝘢𝘵𝘪𝘰𝘯 𝘤𝘳𝘦𝘢𝘵𝘦𝘥 𝘣𝘺 𝘧𝘦𝘳𝘦𝘨𝘪𝘯 𝘦𝘯𝘵𝘦𝘵𝘪𝘦𝘴. 𝘞𝘪𝘭𝘭 𝘸𝘦 𝘦𝘷𝘦𝘳 𝘧𝘪𝘨𝘶𝘳𝘦 𝘰𝘶𝘵? 𝘰𝘳 𝘪𝘴 𝘭𝘪𝘧𝘦 𝘫𝘶𝘴𝘵 𝘭𝘰𝘰𝘱𝘴 𝘪𝘯𝘴𝘪𝘥𝘦 𝘰𝘧 𝘢 𝘱𝘳𝘰𝘨𝘳𝘢𝘮, 𝘸𝘩𝘢𝘵 𝘪𝘴 𝘦𝘷𝘦𝘯 𝘵𝘩𝘦 𝘮𝘦𝘢𝘯𝘪𝘯𝘨 𝘰𝘧 𝘭𝘪𝘧𝘦? </p>
